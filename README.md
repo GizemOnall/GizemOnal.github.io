@@ -1,1 +1,0 @@
-# GizemOnal.github.io
